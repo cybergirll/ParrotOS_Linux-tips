@@ -13,6 +13,5 @@ Tools reviewed
 - This information shall only be used to expand knowledge
 
 <img src="http://g.recordit.co/8GWCV4EhhD.gif">
-<img src="http://g.recordit.co/1WE4so5pTi.gif">
-<img src="http://g.recordit.co/ooUp4tyXIF.gif">
+<img src="http://g.recordit.co/jLc87CyuPe.gif">
 <img src="http://g.recordit.co/cSpYPW286I.gif">
